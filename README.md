@@ -1,2 +1,0 @@
-# nomer1
-Blinkomom
